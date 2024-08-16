@@ -5,6 +5,7 @@
 - 📫 Meu sonho é ser bombeira militar
 - 😄 Contrato:(email, insta, linkedi)
 - ⚡ Eu gostaria de entrar para o exercito fazer o curso de medicina ou infantaria
+- ![](https://media.tenor.com/yNXg0aOT6IYAAAAi/im-awake-must-stay-awake.gif)
 
 <!---
 laura1e/laura1e is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
